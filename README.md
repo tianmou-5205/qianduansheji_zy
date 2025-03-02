@@ -1,2 +1,0 @@
-# qianduansheji_zy
-zhuoye
